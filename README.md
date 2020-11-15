@@ -3,5 +3,5 @@
 
 Here are some ideas to get you started:
 
-- 📫 How to reach me: Send an email to sjcmathssoc@gmail.com
+- 📫 How to reach us: Send an email to sjcmathssoc@gmail.com
 - ⚡ Fun fact: We were established in 1991!
